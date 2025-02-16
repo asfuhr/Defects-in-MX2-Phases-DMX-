@@ -1,1 +1,1 @@
-# Defects-in-MX2-Phases-DMX-
+# Defects-in-MX2-Phases-DMX
